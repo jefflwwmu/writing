@@ -10,9 +10,9 @@
 
 [《Five Hundred Miles》](http://music.163.com/song/27759600?userid=98427644 )
 ### 选手三 
-进场:[粉红色的回忆](http://m.kuwo.cn/?mid=MUSIC_481552&from=sogou&from=sougouSpeech)
+进场:[粉红色的回忆 20m 开始 ](https://music.163.com/#/song?id=34014900)
 
-舞蹈 [pick me 前三十秒](http://music.163.com/song/568532063?userid=98427644)
+舞蹈 [pick me 前三十秒](https://music.163.com/#/song?id=559822831)
 
 ### 结尾
 [活出爱](http://music.163.com/song/29759967?userid=98427644 )
